@@ -1,10 +1,7 @@
 ---
 title: 1984
 tags: George Orwell
-article_header:
-  type: cover
-  image:
-    src: /screenshot.jpg
+
 ---
 
 ORWELL George
