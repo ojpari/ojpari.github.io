@@ -37,14 +37,6 @@ pour la traduction française
 	Restez éveillé avec moi – et ce livre – toute la nuit !!
 
 	Harlan Coben
-
-
-
-
-
-1
-
-
 	Kat Donovan pivota sur le tabouret où son père avait l’habitude de s’asseoir quand Stacy lui annonça :
 
 	— J’ai fait un truc qui ne va pas te plaire.
