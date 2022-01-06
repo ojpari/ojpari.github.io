@@ -1,3 +1,8 @@
+---
+title: Fight Club
+tags: Chuck Palahniuk
+---
+
 Chuck Palahniuk
 
 
