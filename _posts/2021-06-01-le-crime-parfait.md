@@ -1,3 +1,12 @@
+---
+title: LE CRIME PARFAIT
+tags: PETER-JAMES
+
+
+---
+
+
+
 PETER JAMES
 
 LE CRIME PARFAIT
