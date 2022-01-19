@@ -30,7 +30,7 @@ avec l’accord des ayants droit.
 
 			© Guy Trédaniel éditeur, 2018, pour la traduction française
 
-
+s
 
 			Traduit de l’anglais par Florence Logerot-Depraz
 
